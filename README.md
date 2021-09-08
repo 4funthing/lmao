@@ -1,7 +1,7 @@
 - 👋 Hi, I’m No one
-- 👀 I’m interested in nothing. This bullshit it's just an 4fun thing tho.
-- 🌱 I’m currently voluntary Discord Servers Administration
-- 💞️ I’m looking to collaborate on discord moderations servers, 
+- 👀 I’m interested in nothing. This bullshit it's just an 4fun, tho.
+- 🌱 I’m currently doing some voluntary Discord Servers Administration.
+- 💞️ I’m looking to collaborate on discord moderations servers.
 - 📫 How to reach me in my Instagram ( @attemptfofo) or in my personal Discord server. ( discord.gg/rgk )
 - 🏴‍☠️ Heil den Kaisern des Meeres!
 
