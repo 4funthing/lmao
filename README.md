@@ -2,8 +2,7 @@
 - 👀 I’m interested in nothing. This bullshit it's just an 4fun, tho.
 - 🌱 I’m currently doing some voluntary Discord Servers Administration.
 - 💞️ I’m looking to collaborate on discord moderations servers.
-- 📫 How to reach me in my Instagram ( @attemptfofo) or in my personal Discord server. ( discord.gg/rgk )
-- 🏴‍☠️ Heil den Kaisern des Meeres!
+- 📫 How to reach me in my Instagram ( @dxvilmanners) or in my personal Discord server. ( discord.gg/vda )
 
 
 <!---
